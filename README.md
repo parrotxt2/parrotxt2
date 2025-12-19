@@ -11,3 +11,7 @@ Parrot / Ron
 ISTJ . aroace . He/Him
 
 UU parrot kinnie ^_^
+
+<div align="left">
+
+[hi](https://github.com/scam-duo/more-info/blob/main/README.md)
