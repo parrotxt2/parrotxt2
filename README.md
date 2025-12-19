@@ -1,16 +1,13 @@
-wip
+SEMI - ACTIVE !!
 
-<!--
-**parrotxt2/parrotxt2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="right">
+wip. always a wip
 
-Here are some ideas to get you started:
+<img width="2048" height="1536" alt="Image" src="https://github.com/user-attachments/assets/5e32ccf2-a06f-48f2-8eaf-a050fe8ffbdf" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+Parrot / Ron
+
+ISTJ . aroace . He/Him
+
+UU parrot kinnie ^_^
